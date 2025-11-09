@@ -10,7 +10,8 @@
   
 <p align="center">
 
-w2i, always off-tab. AHHHHH AHHHHHHHHHH AHHHHHHHHHHHHHH
+w2i, always off-tab. i'm very shy! >///< i'm better at playing games than talking, ask for my tags ^_^
+
 <p align="center">
 <a href="https://arab.org/click-to-help/palestine/">DAILY CLICK 🇵🇸</a> ⟡ <a href="https://www.last.fm/user/rex69420">LAST.FM</a> ⟡ <a href="https://rex.atabook.org/">GUESTBOOK</a>
 
