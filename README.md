@@ -1,8 +1,5 @@
 
 <p align="center">
-⟡ <a href="https://rentry.co/ex-soldier">RENTRY</a> ⟡
-
-<p align="center">
 <h4 align="center"
 
 ![](https://komarev.com/ghpvc/?username=VlTTORlNO&label=freak+count+++&color=08000A)
