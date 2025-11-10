@@ -19,3 +19,5 @@ w2i, always off-tab. i'm very shy! >///< i'm better at playing games than talkin
 
 <p align="center">
 ⟡ <a href="https://ineedtopeesobadrn.straw.page/">STRAWPAGE</a> ⟡
+
+<p align="center"><img src="https://file.garden/ZgZOjIo9YF7EdB1r/Screenshot%202025-11-10%20213603.png"/></p>
