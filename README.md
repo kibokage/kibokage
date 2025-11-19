@@ -7,7 +7,7 @@
   
 <p align="center">
 
-w2i, always off-tab... or sign atabook i might be sleeping(likely) or outside(less likely) and unable to respond to whispers
+w2i im always off tab. or sign ata bc there's a 40% chance i'm unable 2 respond
 <p align="center">
 <a href="https://arab.org/click-to-help/palestine/">DAILY CLICK 🇵🇸</a> ⟡ <a href="https://www.last.fm/user/rex69420">LAST.FM</a> ⟡ <a href="https://rex.atabook.org/">GUESTBOOK</a>
 
